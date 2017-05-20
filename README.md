@@ -1,3 +1,3 @@
 # Sheeyms.org
 
-Chairman : Sunil Mishar
+Chairman : Sunil Mishra
